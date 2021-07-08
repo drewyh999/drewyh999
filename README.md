@@ -1,3 +1,3 @@
 ### Yuanhao Zhu 
 
-## Final year student in Sichuan University
+## Normal guy in love
