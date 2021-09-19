@@ -1,1 +1,3 @@
-# Frequent travelor to Qujing and Milan🇮🇹
+# Frequent traveler to Qujing and Milan🇮🇹
+
+### Student of University of Zurich🇨🇭
