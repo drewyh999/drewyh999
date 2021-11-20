@@ -1,1 +1,1 @@
-# Frequent traveler to Qujing🇨🇳 and Milan🇮🇹
+# Non-american 
